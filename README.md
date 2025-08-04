@@ -1,3 +1,4 @@
+<img width="1281" height="869" alt="c intermediate" src="https://github.com/user-attachments/assets/39caf903-d969-4e44-940b-e01ffb7a5c31" />
 # 5187844_Dhamotharan
 
 ![Image](https://github.com/user-attachments/assets/fe58f18c-0111-4ae8-8838-82ae02857d3c)
